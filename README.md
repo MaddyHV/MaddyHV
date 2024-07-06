@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MaddyHV
-- 👀 I’m interested in coding,football,tech and create and researching about knew things
+- 👀 I’m interested in coding,football,tech,create and researching about knew things
 - 🌱 I’m currently learning Computer science in specialisation with AIML
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me at harshabarathraj@gmail.com
